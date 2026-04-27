@@ -1,0 +1,2 @@
+# aipred
+MASIH PEMULA PUHH
